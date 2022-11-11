@@ -1,5 +1,5 @@
-### Hi there
+### Hi
 
-I'm a Hentai Researcher.
+Watashi, Hentai Researcher desu.
 
 Especially interested in Supernatural/Strange Phenomenon.
